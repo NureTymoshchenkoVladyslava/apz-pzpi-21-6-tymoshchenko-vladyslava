@@ -1,1 +1,2 @@
-# apz-pzpi-21-6-vladyslava-tymoshchenko
+ПЗПІ-21-6
+Тимощенко Владислава
